@@ -10,4 +10,4 @@ HATI HATI AD SULEEEEEE
 
 
  <img width="916" height="500" alt="image" src="https://github.com/user-attachments/assets/1a32cf08-0cb6-4e18-8abc-f1a30445faff" />
-ZAMNNNNNNN
+<ZAMNNNNNNN size="60">
